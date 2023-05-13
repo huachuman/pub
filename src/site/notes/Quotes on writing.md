@@ -2,7 +2,8 @@
 {"dg-publish":true,"permalink":"/quotes-on-writing/","tags":[""]}
 ---
 
----[Neil Gaiman's Most Important Rule for Writing #shorts - YouTube](https://www.youtube.com/shorts/XVdmxkFVxB4)
+---
+[Neil Gaiman's Most Important Rule for Writing #shorts - YouTube](https://www.youtube.com/shorts/XVdmxkFVxB4)
 
 ---
 
